@@ -17,15 +17,6 @@ csbnc asc nbasbc
 csanc nsa
 nsac asn
 prem2023
-siri
-cbdvcabas
-csvcasbn
-cjasbj
-csajj
-vjhbzkjb
-fvkjzklj
-vkzxjjfzk.
-fldasd;l'as
-fas;mfld;lka
-sfaniskk
-aijidsmai
+siaisajoipjfa
+aof[\ad[jww
+wpowr
